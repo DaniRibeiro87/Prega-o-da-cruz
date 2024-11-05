@@ -1,2 +1,2 @@
-# Prega-o-da-cruz
+# Preço do Sangue
 O preço da Cruz
